@@ -1,4 +1,4 @@
-# Hallowed Studious
+# Hallowed Studios
 
 **We Like To Unblock Stuff**
 
